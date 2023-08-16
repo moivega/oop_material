@@ -6,4 +6,4 @@
 ###### No pierdas las ganas de vivir tan deprisa en algo que para ti supone un esfuerzo extra y no se da un poco más fluido o pasajero.
 ###### El truco es entender su estrategia de marketing y mercadeo. Sabes inglés para incursionar en español o lo inverso (al revés). Y muchas otras lenguas (el bitcoin).
 ###### Para saber qué tan bien haz manejado las cosas y poder enfrentar/confrontar/resolver problemas reales, debes enfocarte en las tendencias de mercado y luego tomar riesgos. yk-on
-###### El detalle es que su esfuerzo sea en beneficio propio, dejando de lado a sus fans o prospectos (alianzas). No controla lo que tiene.
+###### El detalle es que su esfuerzo sea en beneficio propio, dejando de lado a sus fans o prospectos (alianzas). No controla lo que tiene. $
