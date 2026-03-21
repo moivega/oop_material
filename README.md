@@ -1,4 +1,4 @@
-# OOP Material 
+# OOP Material - being a good programmer requires training.⚈
 ## Panamenian Github League (PGL) 🇵🇦 | X Github Club (X GC) 🧭⏳🪙
 ## XYZ OOP | ☕
 ##### ⿻🌐 ng<ux/ui>(.ts) || C++ (c.java.cs)  ♆ | w3schools | Primitive-Primary Colors || The most used | Menos propenso a errores o fallos. | dApps Services (xxx-ns .abc) | host system: server, web, etc... 🖧 | frontend-infoSec. ⬡ {ind[x]bits} 🌀
