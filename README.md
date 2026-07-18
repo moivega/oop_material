@@ -1,5 +1,5 @@
 # OOP Material
-## Panamenian Github League (PGL) 🇵🇦 | X Github Club (X GC) 🧭⏳🪙 | Front-Code Arena
+## Panamenian Github League (PGL) 🇵🇦 | X Github Club (X GC) 🧭⏳🪙 | ngCode Arena
 #### Being a Good Programmer Requires Training (⚈☠️⚈) || BTC Services 👨🏻‍💻모 🌐 || spAppSec Testing 🕓⚪ 🖳🖥⛃
 ## XYZ OOP | ☕
 ##### ⿻🌐 ng<ux/ui>(.ts) || C++ (c.java.cs)  ♆ | w3schools | Primitive-Primary Colors || The most used | Menos propenso a errores o fallos. | dApps Services (xxx-ns .abc) | host system: server, web, etc... 🖧 | frontend-infoSec. ⬡ {ind[x]bits} 🌀
